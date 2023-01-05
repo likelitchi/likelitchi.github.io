@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hi there!
 
-Maybe say a some things about yourself.
+I am going to learning something new to me, or what I want to improve, like programming language, English...
 
-Or maybe what you plan to blog about.
+Hope that I can keep going.
